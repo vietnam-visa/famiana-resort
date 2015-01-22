@@ -1,2 +1,1 @@
-# famiana-resort
-Famiana Resort
+<a href="http://www.hotels-in-vietnam.com/asia/vietnam/hotels_phuquoc/famiana_resort.html">Famina Phu Quoc Resort</a> is cleverly built in romantic nature with a great ocean view for almost all kinds of room. Besides ocean view suites and villas resting upon a stunning beach, Famiana phu quoc has garden and mountain view bungalows, together with multi - purpose fitness room and modern nursery.
